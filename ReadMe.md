@@ -1,5 +1,5 @@
 # 💫 About Me:
-📚Programming student (ADS)<br>🔎Looking for a job in the area<br>🌎Brazilian<br>👨Years
+📚Programming student (ADS)<br>🔎Looking for a job in the area<br>🌎Brazilian<br>👨20 Years
 
 
 ## 🌐 Socials:
